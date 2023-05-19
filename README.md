@@ -1,2 +1,2 @@
 # Mourice-wantahe-
-Justt tech
+Just Tech
